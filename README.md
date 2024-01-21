@@ -1,0 +1,5 @@
+![image](https://github.com/bouchidayoussef/Etude-de-cas-d-cisionnelle-HYPERMARCHE_Datavisualisation/assets/75219736/d6041bab-97ca-49d4-8b5a-9a5caf0e526c)
+![image](https://github.com/bouchidayoussef/Etude-de-cas-d-cisionnelle-HYPERMARCHE_Datavisualisation/assets/75219736/33f7ffc7-4126-4d4a-ac96-f33bb8db204e)
+![image](https://github.com/bouchidayoussef/Etude-de-cas-d-cisionnelle-HYPERMARCHE_Datavisualisation/assets/75219736/7e47e16c-addc-4d24-bf6c-e20cb4895baf)
+![image](https://github.com/bouchidayoussef/Etude-de-cas-d-cisionnelle-HYPERMARCHE_Datavisualisation/assets/75219736/d608a522-b40b-4d4b-a021-6d1d6a4b1171)
+![image](https://github.com/bouchidayoussef/Etude-de-cas-d-cisionnelle-HYPERMARCHE_Datavisualisation/assets/75219736/425a71cd-fbcf-4150-a6b0-6c11b751d883)
